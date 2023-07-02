@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **utssabad10@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/s/jt16f6rydnsrzk7/Utsab_Adhikari_resume_CyberSecurity.pdf?dl=0](https://www.dropbox.com/s/jt16f6rydnsrzk7/Utsab_Adhikari_resume_CyberSecurity.pdf?dl=0)
+- 📄 Know about my experiences [I have some experience](https://www.dropbox.com/s/jt16f6rydnsrzk7/Utsab_Adhikari_resume_CyberSecurity.pdf?dl=0)
 
 - ⚡ Fun fact **I am very boring.**
 
