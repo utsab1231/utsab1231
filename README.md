@@ -1,4 +1,4 @@
-![logo](https://github.com/utsab1231/utsab1231/blob/main/Github%20Banner.png)
+
 <h1 align="center">🙏🙏Namastey 🙏🙏 </h1>
 <h3 align="center">A student trying options</h3>
 
